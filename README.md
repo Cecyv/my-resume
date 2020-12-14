@@ -3,7 +3,7 @@ verasteguicecilia1@gmail.com  |  (480) 772-0224
 
 4623 142nd PL SE, Bellevue, WA. 98006
 
-https://github.com/Cecyv/my-resume/tree/main
+https://www.linkedin.com/in/cecilia-verastegui-0a2889201/
 
 ## **PROFILE** ##
 
