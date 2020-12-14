@@ -33,7 +33,7 @@ After taking a pause on my professional career I am now seeking an opportunity t
 **2002-2004 Finance Intern, Protego Asesores**
 
 *Monterrey, Mexico*
-* Researched information for the M&A team
+* Researched information for the Mergers and Aquisitions team
 * Translated documents
 
 ## **EDUCATION** ##
