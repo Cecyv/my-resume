@@ -63,6 +63,6 @@ Graduated Top of Class
 * Spanish
 
 ## **ACTIVITIES AND INTERESTS** ##
-Reading, art, travel, being outdoors, volunteering for Bellevue School District, yoga, pilates and meditation, listening to podcast, spending time with friends and especially my children.
+Reading, art, travel, being outdoors, volunteering for Bellevue School District, yoga, pilates and meditation, listening to podcasts, spending time with friends, and especially my children.
 
 
