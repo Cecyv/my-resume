@@ -45,7 +45,7 @@ Graduated Top of Class
 
 **2019 Certificate for Medical Interpreter** 
 
-*Department of Social and Health Services*
+*Washington State Department of Social and Health Services*
 
 **2020 Self-taught Business Program Management**
 
