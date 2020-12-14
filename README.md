@@ -47,7 +47,7 @@ Graduated Top of Class
 
 *Department of Social and Health Services*
 
-**2020 Self-taught Business Process Management**
+**2020 Self-taught Business Program Management**
 
 ## **KEY SKILLS AND CHARACTERISTICS** ##
 * Critical Thinking
