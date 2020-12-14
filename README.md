@@ -3,6 +3,8 @@ verasteguicecilia1@gmail.com  |  (480) 772-0224
 
 4623 142nd PL SE, Bellevue, WA. 98006
 
+https://github.com/Cecyv/my-resume/tree/main
+
 ## **PROFILE** ##
 
 Responsible, detailed oriented, bilingual accounting professional with over 10 years of experience in a leading investment banking advisory firm. Experienced in both office and remote working environments.
