@@ -47,7 +47,9 @@ Graduated Top of Class
 
 *Washington State Department of Social and Health Services*
 
-**2020 Self-taught Business Program Management**
+**2020 Self-taught Project Management**
+ 
+*Multiple resources including "Project Management Absolute Beginner’s Guide" by Gregory Horine*
 
 ## **KEY SKILLS AND CHARACTERISTICS** ##
 * Critical Thinking
